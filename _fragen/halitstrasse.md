@@ -15,4 +15,4 @@ Rechte und rassistische Morde wollen die Opfer und alle Menschen wie sie auslös
 
 Zudem sollte das Gedenken an rechte und rassistische Gewalt stets so sein, wie es sich die Überlebenden und Angehörigen wünschen. Ihre Perspektiven und Wünsche sollten im Mittelpunkt stehen. Dass Familie Yozgat sich das wünscht, ist der wichtigste Grund, warum die Holländische Straße in Halitstraße umbenannt werden muss.
 
-Nach dem was Halit Yozgat geschah und wie Familie Yozgat nach seinem Tod, auch von Polizeibeamt\*innen, Politiker\*innen und Journalist\*innen in Kassel, verdächtigt und gedemütigt wurde sollte diese banale Forderung der Familie nicht einmal zur Debatte stehen.
+Nach dem was Halit Yozgat geschah und wie Familie Yozgat nach seinem Tod, auch von Polizeibeamt\*innen, Politiker\*innen und Journalist\*innen in Kassel, verdächtigt und gedemütigt wurde sollte diese klare Forderung der Familie nicht einmal zur Debatte stehen.
